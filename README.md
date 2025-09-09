@@ -4,6 +4,7 @@ I have a strong interest in programming, data structures and emerging technologi
 I also have a great interest in game developing and graphic designing.
 I hope I'll be well versed in multiple skills which would improve me.
 I also putting my effort towads my problem solving and communication skills.
+
 I'm from a supportive and loving family.
 My father's name is Duraivel N.
 My mothers name is Premalatha G.
