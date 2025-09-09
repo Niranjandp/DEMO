@@ -11,3 +11,6 @@ My mothers name is Premalatha G.
 My grandmother live with us.
 My father is a buisnessman and my is a homemaker.
 I'm an only child who was thought to value disciplin and respect everyone.
+
+I'd say my biggest role model is my father, he is the biggest hardworker I've ever seen. 
+He is the biggest supporter I'll ever get, I am so much lucky to have him by my side. 
